@@ -17,3 +17,8 @@ Tensor flow; Container ; rename ; Algo RPC
 Circular Economy , Zero Carbon, Educational standards , data
 5 year plans deflationary algo 2025 Token generation and POW
 
+Smart Contracts , sidechains, Agreements ( opensource data feeds ) 
+Intervention, voting , international articles
+10M Qbits
+Emergence tech
+Visual learning, code, computer access ( cloud based ) 
